@@ -1,5 +1,4 @@
 IT Consultant | Project Manager | Technology Enthusiast
-Dallas–Fort Worth, TX
 
 _“Good judgment comes from experience. Experience comes from bad judgment.”_
 
