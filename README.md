@@ -1,5 +1,3 @@
-# Hi, I'm Kyle
-
 IT Consultant | Project Manager | Technology Enthusiast
 Dallas–Fort Worth, TX
 
